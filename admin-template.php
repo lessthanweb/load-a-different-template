@@ -1,0 +1,1 @@
+This template is loaded for to administrators only.
